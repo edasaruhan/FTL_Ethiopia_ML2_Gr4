@@ -4,6 +4,6 @@
 - **Dawit Teklebrehan**
 - **Shimels Tilahun Asemare**
 - **Robel Ermiyas Moges**
-- **Robel Roba Dita**
+- **Robel Roba Ditta**
 - **Tewodros Gebretsadik**
 - **Negassa Retta Tefera**
